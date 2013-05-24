@@ -11,7 +11,7 @@ http://sklep.andrewex.com.pl/media/catalog/product/cache/1/image/9df78eab33525d0
 
 Szara
 ===
-http://sklep.andrewex.com.pl/2-szt-x-deska-kompozytowa-dwustronnie-ryflowana-25x150x2400mm-braz-2.html
+http://sklep.andrewex.com.pl/media/catalog/product/cache/1/image/9df78eab33525d08d6e5fb8d27136e95/w/p/wpc_szary_2_1_1.jpg
 
 Uklady
 ---
